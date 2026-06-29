@@ -1,4 +1,4 @@
-# 
+# Nativo Ableton Live efeitos para Mac OS | Gratuito Ableton Live efeitos para PC Windows. Com gravação e redução de ruído — otimizado para máximo desempenho em cada plataforma.
 
 
 
